@@ -1,5 +1,5 @@
 hii i am vishnu
-i have laptop md
+i have laptop and
 i have the mobile
 
 
